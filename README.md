@@ -1,2 +1,2 @@
 Trabajo de redes 
-Integrantes : Felipe Perez Diaz / Anays Mansilla Ramimirez
+Integrantes : Felipe Perez Diaz / Anays Mansilla Ramirez
